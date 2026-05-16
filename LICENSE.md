@@ -1,4 +1,4 @@
-# 
+# Enhance your trading with secure raydium trading bot Plugin | MEV-strategies + fee-optimization, the #1 raydium trading bot. Includes MEV-strategies and fee-optimization for a
 
 
 
